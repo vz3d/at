@@ -1,0 +1,1 @@
+1. https://zttl.space/t/polnoczennaya-rabota-v-obsidian-s-klaviatury/307/2
